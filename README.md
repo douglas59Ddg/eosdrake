@@ -1,2 +1,2 @@
 # eosdrake
-os bo
+os bota n pega nunca 59d 
